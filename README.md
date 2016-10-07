@@ -1,0 +1,1 @@
+# takoboto2anki
